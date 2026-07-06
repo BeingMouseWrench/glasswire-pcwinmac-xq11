@@ -1,4 +1,4 @@
-# 
+# Oficial GlassWire plantillas para Mac OS | Automático GlassWire plantillas para PC Windows. Con bloqueador de anuncios y informes históricos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
